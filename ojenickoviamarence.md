@@ -1,0 +1,25 @@
+﻿# O Jeníčkovi a Mařence
+
+Byl jednou jeden tatínek a ten měl dvě děti. Jeníčka a Mařenku. Byl chudý a často se v jejich chaloupce nenašel ani kousínek chleba. Maminka zemřela, když byly děti maličké a tak se životem protloukali sami. Často trpívali hladem a tatínka to velice trápilo.
+
+Ve svém zoufalství se jednoho večera rozhodl, že Honzíka a Mařenku ráno vezme hluboko do lesa, aby nenašli cestu domů a nechá je tam. „Snad si najdou nějakého dobrodince, u něhož se jim bude dařit lépe než doma“. 
+
+Ráno druhého dne povídá: “Děti, musíme do lesa na dříví, pojďte se mnou, zatímco budu sekat, vy se zatím můžete najíst lesních plodů“. Jeníček s Mařenkou nadšeně začali poskakovat, lesní jahůdky a maliny měli moc rádi a už se těšili, jak si nacpou bříška. Tatínek popadl sekeru a šlo se.
+
+Vedl je hustým lesem hlouběji a hlouběji. Pak začal pracovat a sekyrou chystat dříví, aby jej mohl vzít domů. Děti zatím hledaly, co by sezobly, běhaly po lese a orientovaly se podle zvuku tatínkovy sekyrky. Tu našli krásnou malinu, tu ostružinu, až došly na mýtinu osvícenou sluníčkem plnou sladkých jahod. Plné hrstičky si sypaly do úst a spokojeně se vyhřívaly na teploučkém paloučku.
+Když svit sluníčka začínal slábnout, vydaly se směrem k tatínkovi, odkud se ještě před chvílí ozýval zvuk sekyrky. Teď však bylo ticho.
+
+„Tatínků!“ volaly Honzík a Mařenka. Ale nikdo neodpovídal. A tak chodily lesem a hledaly svého tatínka. Sluníčko se zatím schovalo mezi stromy a pomaličku se stmívalo. Děti se začaly bát. Nejvíc mladší Mařenka. Když nastala tma, přemýšlely, co dělat. „Vylezu na vysoký strom, jestli neuvidím nějaké stavení.“ povídá Jeníček. Mařenka byla už tak unavená z toho putování, že jen kývla, jako že ano.
+
+Jeníček zdatně vyšplhal na nejvyšší strom, který v blízkosti našel a rozhlížel se do všech stran. Na západní straně přece jen něco zahlédl: „Mařenko, v dáli svítí malé světýlko, vydáme se tam!“ A tak se zaradovali a začali se prodírat hustým lesem směrem k němu.
+
+Hladoví a vyčerpaní najednou stáli před chaloupkou, z jejíhož okénka vycházelo ono světlo. Plny radosti se děti k chaloupce rozeběhly. Jak se však podivily! Chaloupka byla celičká z perníku! Střecha byla pokrytá těmi největšími a nejvoňavějšími koláči, okna byla zdobená marcipánem a plot, ten byl celý z čokoládových latěk! Jeníček se nerozmýšlel, vyskočil na něj a utrhl ze střechy obrovitý koláč a půlku dal své sestřičce. Sotva se do něj pustili, otevřely se dveře a vyšla stará čarodějnice. Protože v té tmě nic neviděla, zaskřehotala: „Kdopak mi to tu loupe můj perníček??“ Jeníček pohotově odpověděl: „To jen větříček, to jen větříček!“. Baba zašla zpět a děti si oddechly.
+Dojedly koláč a ulomily si kousek voňavého perníkového srdíčka. Tu se opět rozlétly dveře chaloupky a znovu se ozval ten skřehotavý hlas: „Kdopak mi to tu loupe můj perníček??“ „To větříček, to větříček!“ rychle zaševelil Jeníček.
+
+To už se ale staré čarodějnici nezdálo, vyšla ven a začala se kolem všech těch sladkostí rozhlížet. „Už vás mám darebové!“ volala. Děti neměly kam utéct. Chytila je hned a šup s nimi do chaloupky. Jeníčka zavřela do klece, že si ho vykrmí a Mařenka jí musela sloužit. Vařila, prala a uklízela. Babizna Jeníčkovi nosila ta nejlahodnější jídla, aby hezky ztloustl a mohla ho upéct a sníst. Každý den přicházela ke klícce a zavolala: „Jeníčku, vystrč prstíček, ať poznám, jak jsi tlustý.“ Ale Jeníček vždy vystrčil kus oblého dřívka a stará čarodějnice napůl slepá nic nepoznala, jen jí bylo divné, že chlapec netloustne.
+
+Jednou však ztratila trpělivost a křikla na Mařenku: „Zatop v peci, dnes bude Jeník k obědu ať je tlustý nebo ne!“ Děvče se rozplakalo, ale poslechnout muselo. Oheň v peci již prskal a čarodějnice chystala velkou lopatu. Potom vytáhla Jeníčka z klece a povídá: „Hezky se posaď na lopatu a pořádně se drž, abys nespadl!“ Jeníček se tedy na lopatu posadil, ale jak ji baba zvedala, hned se zase skulil na zem a do pece se tak ne a ne dostat. Babizna byla celá vzteky bez sebe.
+„Ukažte mi tedy babičko, ak se na lopatě sedí.“ prosil Jeníček a pomrkával na Mařenku.
+Čarodějnice, jak byla vzteklá a už jí to tolik nemyslelo poslechla, sedla na lopatu, aby Jeníčkovi ukázala, jak se má držet, ale ten rychle přiskočil i s Mařenkou, oba ze všech sil lopatu pozvedli a než se babizna nadála, šupli ji do pece a rychle zastrčili železná dvířka, aby se nedostala ven. Upekla se tam na škvareček.
+
+To se dětem ulevilo! Najedly se dobrot z chaloupky, nabraly si co to šlo a vydaly se hledat cestu domů. Mezitím tatínek tolik litoval, že své děti v lese ponechal svému osudu a tak moc se mu po nich stýskalo, že každý den chodíval po lese a hledal je. A jak se tak v tom lese hledali, tak se také našli. Padli si do náručí a tatínek prosil děti o odpuštění. Plni štěstí, že jsou zase spolu, se vydali k domovu.
