@@ -1,0 +1,33 @@
+<!DOCTYPE html>
+<html>
+<head>
+  <meta charset="utf-8">
+  <link rel="stylesheet" type="text/css" href="mystyles.css" media="screen" />
+  <style>
+     body {background-image: url('http://i.imgur.com/Ix38Qeo.png');}
+
+    h1 { 
+      color: #008040;
+      text-decoration: underline overline;
+      text-transform: uppercase;}
+    h2 {
+        color: #008040;
+        text-decoration: underline;
+      }
+    .zdroj a {color: #990000;}
+      p { font-family: serif;
+        font-style: normal;
+        font-size: medium;
+        font-weight: bold; }
+        .content {border-style: double;
+          border-color: #00b359}
+      #pytel i {color: #008080;}
+      blockquote {font-weight: bolder;}
+      #soutez i {color: #008080}
+      ol {list-style-type: square;
+    }
+    
+}
+</style>
+    
+</head>
